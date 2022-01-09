@@ -1,1 +1,1 @@
-https://www.instant-gaming.com/es/?gclid=Cj0KCQiAvJXxBRCeARIsAMSkApqr-2SP2USKidXjVITLvI_QuP2se6zLo2MP8xlOP44CEhsZNhKAMOEaAuxeEALw_wcB
+https://github.com/Machacamas30
